@@ -1,6 +1,11 @@
 ![238353467-897cd757-ea1f-492d-aaf9-6d1674177e08](https://github.com/kmdeore359/kmdeore359/assets/22044611/510164db-9cc5-4eb4-8983-43ea6def112f)
 
 
+
+<img src="![238353467-897cd757-ea1f-492d-aaf9-6d1674177e08](https://github.com/kmdeore359/kmdeore359/assets/22044611/510164db-9cc5-4eb4-8983-43ea6def112f)" width="250" height="250"/>
+
+
+
 ### Hi there 👋
 # 🚀 Kunal Deore
 
